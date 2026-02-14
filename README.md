@@ -8,7 +8,7 @@
 - 🎨 Branding & Design
 - 🎤 Seminar & Campaign Management
 
-📱 WhatsApp: [I Want More Info](https://wa.me/917208684283)
+📱 WhatsApp: [For More Info](https://wa.me/917208684283)
 
 ## 📍 Location
 
@@ -94,6 +94,7 @@ Yes. We create marketing plans based on your business type, target audience, and
 ### 8️⃣ Do you handle event promotions?
 
 Yes. We manage event branding, social media promotions, seminar marketing, and audience engagement campaigns.
+
 
 
 
